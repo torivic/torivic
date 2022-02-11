@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Perkenalkan nama saya **Victorio E. C. M. A.**.\
+
+Saya seorang **Mahasiswa** di ITS.\
+
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/vecmag/)ku ya.
